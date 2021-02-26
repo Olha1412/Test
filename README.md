@@ -1,2 +1,2 @@
 # Test
-This is a test repositiry for a group
+This is a test repository for a group
