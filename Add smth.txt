@@ -1,5 +1,5 @@
-!!!Rewrote 1 and 
-added line 2 
-!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+
+added first line 1
+second line 2
 ADD NEW WORDS TO THIS DOC
 
