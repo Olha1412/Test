@@ -1,6 +1,6 @@
 new file for conflict
 
-This something very cool I guess!
+This something very cool I think!!!
 🦁
 🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍
 🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈
