@@ -1,5 +1,6 @@
 
-added first line 1
+
+something changes
 second line 2
 ADD NEW WORDS TO THIS DOC
 
