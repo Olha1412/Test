@@ -1,6 +1,6 @@
 new file for conflict
 
-This is a group repository for a test !
+This is some strange stuff I've never seen before !
 🦁
 🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍🌍
 🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈
